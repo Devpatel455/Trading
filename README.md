@@ -1,0 +1,2 @@
+# Trading
+Knowledge about trading
